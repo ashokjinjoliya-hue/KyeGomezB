@@ -4,4 +4,4 @@ I'm Kye Gomez, Founder of [Swarms](https://swarms.ai). Our mission at swarms is 
 
 - [Join My Discord!](https://discord.gg/EamjgSaEQf)
 
-- [Personal Website](https://kyegomez.com)
+- [Personal Website](https://kyegomez.com) wake up swarm army
